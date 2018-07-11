@@ -1,0 +1,1 @@
+Brainstorming for Kirill Kondratiev
